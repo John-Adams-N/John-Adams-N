@@ -8,4 +8,3 @@ I am John Adams 😄 Pronouns: He/Him.
 - 🤔 I’m looking for help with landing a volunteer remote project
 - 💬 Ask me about Molecular Biology and Biotechnology
 - 📫 How to reach me: johnadams9644@gmail.com
-- ⚡ Fun fact: ...
